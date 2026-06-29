@@ -1,4 +1,4 @@
-#  
+#  dandy's world Script best is the best dandy's world Script, featuring custom skins and auto-collect. Safe and powerful for all your needs.
 
 
 
